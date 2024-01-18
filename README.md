@@ -9,7 +9,7 @@
 
 - 📝 I regularly write articles on [https://marinani.github.io/](https://marinani.github.io/)
 
-- 📫 How to reach me **mari.ribeiro1994@gmail.com**
+- 📫 How to reach me **mariaribeiro@ici.curitiba.org.br**
 
 - 📄 Know about my experiences [https://marinani.github.io/](https://marinani.github.io/)
 
